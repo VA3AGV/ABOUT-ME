@@ -15,11 +15,11 @@ ACCOMPLISHMENTS :: (PAID) https://www.ve3sp.com/p/accomplishments-in-amateur-ham
 ANDRE VA3AGV.COM
 
 VA3AGV Social Links: www.linktr.ee/VA3AGV
-
-www.VE3SP.com
-www.VA3AGV.com
-www.VE3WZW.net
-www.VE3WZW.com
-10+
+ <a/>
+www.VE3SP.com <a/>
+www.VA3AGV.com <a/>
+www.VE3WZW.net <a/>
+www.VE3WZW.com <a/>
+10+ <a/>
 
 
