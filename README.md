@@ -21,7 +21,7 @@ VA3AGV Social Links: www.linktr.ee/VA3AGV
 www.VE3SP.com </br>
 www.VA3AGV.com </br>
 www.VE3WZW.net </br>
-www.VE3WZW.com </br>
+www.VA3WZW.com </br>
 10+ </br>
 
 
