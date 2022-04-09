@@ -16,7 +16,6 @@ ANDRE VA3AGV.COM
 
 VA3AGV Social Links: www.linktr.ee/VA3AGV
 
-
 www.VE3SP.com
 www.VA3AGV.com
 www.VE3WZW.net
